@@ -5,7 +5,3 @@
 Get Database at:
 
 https://www.patreon.com/posts/pos-application-88443830
-
-Or
-
-Contact Me at : mehedihasan.pw@gmail.com
